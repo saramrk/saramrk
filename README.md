@@ -5,4 +5,3 @@
                           (˚ˎ 。7  
                            |、˜〵          
                           じしˍ,)ノ
-![alt text](https://pbs.twimg.com/media/FTDcL9AUsAAYJgC?format=jpg&name=4096x4096)
